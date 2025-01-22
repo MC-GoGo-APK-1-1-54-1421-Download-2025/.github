@@ -7,7 +7,7 @@ Today we are bringing you a game in which you can play alone or with up to 7 oth
 
 In **MC GOGO**, you step into the role of a commander, where your strategic decisions determine your success on the battlefield based on your gaming experience. The game emphasizes tactical planning over micromanagement, making it accessible to casual players while providing depth for experienced strategists. Recruit and upgrade a diverse roster of MLBB heroes, create powerful synergies, and place your pieces wisely to outsmart opponents in this thrilling chess-like experience.
  
- ([Download MC GoGo APK](https://apkdirectory.in/en/mc-gogo-app))
+ ### ([Download MC GoGo APK](https://apkdirectory.in/en/mc-gogo-app))
 
 ---
 
